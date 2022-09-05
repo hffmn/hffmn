@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @hffmn
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning nothing. 
-- 💞️ I’m looking to collaborate on nothing
 - 📫 
 
 <!---
