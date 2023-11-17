@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @hffmn
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning nothing. 
+- 🌱 I’m currently learning how to live this life. 
 - 📫 
 
 <!---
